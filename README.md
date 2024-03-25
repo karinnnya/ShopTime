@@ -1,1 +1,1 @@
-![image](https://github.com/karinnnya/ShopTime/assets/86528482/4644fe80-f914-4edc-95dd-1f67e0cb30b1)
+![image](https://github.com/karinnnya/ShopTime/assets/86528482/57a75d17-a60c-4fa5-b394-521c8d66bf8a)
